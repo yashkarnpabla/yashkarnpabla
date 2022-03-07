@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @yashkarnpabla
+- 👀 I’m interested in learning!
+- 🌱 I’m currently learning artifical intelligence. 
+- 💞️ I’m looking to collaborate on ... everything!
+- 📫 How to reach me LinkedIn!@ypabla
